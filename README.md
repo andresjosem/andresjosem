@@ -51,6 +51,5 @@ Mi experiencia me permite **entender lo técnico**, **gestionar equipos** y **al
 - 🌐 [Portfolio personal](https://andresjoz.com)  
 
 ---
-
-Gracias por pasarte por aquí.  
-✨ **"El diseño lo es todo"** ✨  
+  
+✨ **El diseño lo es todo** ✨  
