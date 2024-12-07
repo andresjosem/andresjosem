@@ -48,7 +48,7 @@ Mi experiencia me permite **entender lo técnico**, **gestionar equipos** y **al
 ---
 
 ## 📫 **Contáctame**  
-- 🌐 [Tu sitio web o portfolio personal](https://andresjoz.com)  
+- 🌐 [Portfolio personal](https://andresjoz.com)  
 
 ---
 
